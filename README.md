@@ -1,1 +1,0 @@
-# -JohnKim0911.github.io
